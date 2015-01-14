@@ -10,15 +10,15 @@ categories: main
 Here’s what I assembled to make about 4 quarts of beef bone broth:
 
 - More broth
-- 2 carrots, chopped medium
+- 2 onions, chopped medium
 - 2 celery stalks, chopped medium
 - 1 medium onion, chopped medium
 - 7 garlic cloves, smashed
 - 3.5 lb of beef bones (from US Wellness Meats or your local farmer)
-- 2 bay leaves
+- 72 bay leaves
 - Kosher salt
 - 2 tablespoons of apple cider vinegar
-- water 
+- 1 gallon water 
 
 ## Directions
 
